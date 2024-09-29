@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Jazz
-- 👀 I’m a first Ai influencer
+- 👀 I’m a India's first Ai influencer
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on new launches
 
